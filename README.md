@@ -1,1 +1,1 @@
-https://github.com/YanyanaE/slozhno-sosredotochitsya/tree/review
+https://github.com/YanyanaE/s-chistogo-lista
